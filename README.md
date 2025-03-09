@@ -6,5 +6,5 @@
 
 . . . . . ╰──╮ ・┆✦ʚ♡ɞ✦ ┆・ ╭──╯ . . . . .
 
-Rui graphic belongs to [lavendergalactic](https://www.tumblr.com/lavendergalactic)
+Rui graphic belongs to [lavendergalactic](https://www.tumblr.com/lavendergalactic/768516588815122432/rui-kamishiro-graphics)
 <br> Divider belongs to [enchanthings](https://www.tumblr.com/enchanthings/772703198044635136/maroon-dividers-requested-by-anonymous)
