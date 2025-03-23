@@ -1,7 +1,7 @@
 <p align="center">
-<img src="https://64.media.tumblr.com/26517c801c2933ef27f026d54b383f32/2fbba42775050b19-21/s1280x1920/f193b654d412465f49a77c76012174c193481f12.pnj">
+<img src="https://github.com/user-attachments/assets/1937b8c9-d9aa-4c9b-9bcc-c47532c0a14d">
   <div align="center"
     
 . . . . . ╰──╮ ・┆✦ʚ♡ɞ✦ ┆・ ╭──╯ . . . . .
 
-Graphic Credits go to [milaxan7](https://www.tumblr.com/milaxan7/764338503987478528/ooooooooooowwisuieeidj-oh-my-goodness-can-you-do-a)
+Graphic Credits go to [melodyy-mel](https://www.tumblr.com/melodyy-mel/758514736827678720/mafuyu-graphics-ipcventurine-event-im-speed)
