@@ -3,4 +3,5 @@
 <div align="center"
   
  . . . . ╰──╮ ・┆✦ʚ♡ɞ✦ ┆・ ╭──╯ . . . . .<br>
- Matching with my gangers
+ Matching with my gangers<br>
+ [LAYOUT CREDITS!!](https://www.tumblr.com/sweetbarista/770413449282027521/matching-alnst-layouts)
