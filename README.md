@@ -4,4 +4,6 @@
   
  . . . . ╰──╮ ・┆✦ʚ♡ɞ✦ ┆・ ╭──╯ . . . . .<br>
  Matching with my gangers<br>
- [LAYOUT CREDITS!!](https://www.tumblr.com/sweetbarista/770413449282027521/matching-alnst-layouts)
+ [LAYOUT CREDITS!!](https://www.tumblr.com/sweetbarista/770413449282027521/matching-alnst-layouts)<br>
+ . . . . ╰──╮ ・┆✦ʚ♡ɞ✦ ┆・ ╭──╯ . . . . .<br>
+ <img src="https://media.discordapp.net/attachments/1013237702587580446/1361454487096791200/image.png?ex=67fed0cc&is=67fd7f4c&hm=61ff571de35ce63b63d95a8e999fffde7baa4740ef310cd04cb72cde7ab26f61&=&format=webp&quality=lossless&width=796&height=881"><br> my gang
