@@ -1,9 +1,5 @@
 <p align="center">
-<img src="https://64.media.tumblr.com/1620f332c0ce2452c540f11e4bf595e0/74c3cd86a32bc741-b7/s2048x3072/716450f78b082a747ad2bd2482c916c070245b61.pnj">
+<img src="https://cdn.discordapp.com/attachments/1013237702587580446/1362833707504763263/021104657f1d45f8296d589c21955341.png?ex=6803d54c&is=680283cc&hm=a8c1ad534501747548bdfa5650ae9a933516db4b3fede20fa6c563be50e7e2a2&">
 <div align="center"
   
- . . . . ╰──╮ ・┆✦ʚ♡ɞ✦ ┆・ ╭──╯ . . . . .<br>
- Matching with my gangers<br>
- [LAYOUT CREDITS!!](https://www.tumblr.com/sweetbarista/770413449282027521/matching-alnst-layouts)<br>
- . . . . ╰──╮ ・┆✦ʚ♡ɞ✦ ┆・ ╭──╯ . . . . .<br>
- <img src="https://media.discordapp.net/attachments/1013237702587580446/1361454487096791200/image.png?ex=67fed0cc&is=67fd7f4c&hm=61ff571de35ce63b63d95a8e999fffde7baa4740ef310cd04cb72cde7ab26f61&=&format=webp&quality=lossless&width=796&height=881"><br> my gang (ss featuring [@phaexie](https://github.com/phaexie) and [@ToasterTheFox](https://github.com/ToasterTheFox))
+my humor's cracked
